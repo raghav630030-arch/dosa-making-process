@@ -11,3 +11,6 @@
 
 1. Light the stove<br>
 2. Take dosa batter<br>
+
+3. karam added and pour some oil on it<br>
+4. Keep the dosa on the stove for 5 mins
